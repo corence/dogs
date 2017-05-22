@@ -1,5 +1,5 @@
 
-# Kirra
+# Kirra and Orni
 
 ## Description
 Kirra is a friendly, well-behaved, low-activity dog. She is a three-year-old medium-sized labrador mix who is mature, calm and easy-going. We have had Kirra since she was three months old, and she is a cherished member of our family. If you have any questions about our dog, please don't hesitate to ask.
